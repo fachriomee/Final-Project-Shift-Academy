@@ -84,31 +84,31 @@
 
 ![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide42.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide43.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide44.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide45.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide46.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide47.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide48.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide49.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide50.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide51.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide52.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide53.JPG)
 
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide54.JPG)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+![8](https://github.com/fachriomee/Final-Project-Shift-Academy/blob/main/folder/Slide55.JPG)
 
 
 
